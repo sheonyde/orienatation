@@ -1,1 +1,1 @@
-# orienatation-tartu
+# orienatation
